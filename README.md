@@ -1,4 +1,7 @@
-### Hi there 👋
+> Work it harder make it better  
+> Do it faster makes us stronger  
+> More than ever hour after  
+> Our work is never over  
 
 <!--
 **TheArijitSaha/TheArijitSaha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
